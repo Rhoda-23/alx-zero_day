@@ -1,1 +1,1 @@
-We are the leaders of tomorrow
+We will be the leaders of tomorrow 
